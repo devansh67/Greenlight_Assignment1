@@ -1,1 +1,1 @@
-![image](https://github.com/devansh-sharma_glft/Calculator/assets/154922916/ac5a55fd-60b6-472e-a644-9e82c79d9d3b)
+![image](https://github.com/devansh67/Greenlight_Assignment1/assets/72251135/f47a1fcc-3c8f-48e4-88d6-b819cc461d6b)
